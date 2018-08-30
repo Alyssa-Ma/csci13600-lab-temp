@@ -1,1 +1,1 @@
-# csci13600-lab-temp
+# Waiting for resubmitted request for student pack to go through
